@@ -1,4 +1,4 @@
-<img src="https://media1.tenor.com/m/-f4MdQKmOBIAAAAC/gundam-gundam-seed.gif">
+<img src="https://tenor.com/view/initial-d-fifth-stage-raise-up-move-band-ae86-gif-25905350.gif">
 <h2> Hey there! I'm VallReey.</h2>
 
 <h3> 🕶️ &nbsp;About Me </h3>
